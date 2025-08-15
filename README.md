@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Myself Lamiya Yasmin A S, B Tech Final year student trying to figure out things by exploring, experimenting and learning.
 
 
